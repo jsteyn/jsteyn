@@ -3,6 +3,7 @@
 - 👩‍🏫 My name is Jannetta
 - 💻 I'm a research software engineer
 - 🕸️ My personal web page can be found at [jannetta.com](https://jannetta.com)
+- ![](https://hachyderm.io/favicon.ico) You can find me Mastodon as [@jannettas](https://hachyderm.io/@jannettas)
 - ![](https://twitter.com/favicon.ico) You can find me on Twitter as [@jannettas](https://twitter.com/jannettas)
 - ![](instagram_16.png) I'm also on Instagram as [jannettasteyn](https://www.instagram.com/jannettasteyn/)
 - 🇿🇦 I speak fluent Afrikaans and 🇬🇧 English and a little 🇩🇪 German. I can probably ask for coffee, chop wood and walk into town in Zulu and Tswana.
