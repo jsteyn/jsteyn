@@ -8,7 +8,7 @@
 
 - You can find me on Twitter as [@jannettas](https://twitter.com/jannettas)
 - ![](instagram_16.png) I'm also on Instagram as [jannettasteyn](https://www.instagram.com/jannettasteyn/)
-- 🇿🇦 I speak fluent Afrikaans and 🇬🇧 English and a little 🇩🇪 German. I can probably ask for coffee, chop wood and walk into town in Zulu and Tswana.
+- ![South African Flag](https://upload.wikimedia.org/wikipedia/commons/0/0e/Icons-flag-za.png) I speak fluent Afrikaans and ![UK flag](https://upload.wikimedia.org/wikipedia/commons/0/07/Icons-flag-uk.png) English and a little ![German Flag](https://upload.wikimedia.org/wikipedia/commons/b/b5/Icons-flag-de.png) German. I can probably ask for coffee, chop wood and walk into town in Zulu and Tswana.
 - 😄 My pronouns are she/her/hers, but if I get any more weird, obviously fake, male profiles following me on Instagram, I'm going to change it to "him/his" or maybe "it".
 
 
